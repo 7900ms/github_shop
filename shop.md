@@ -38,7 +38,7 @@ shop
 
 小心间谍 (1990) (泰迪·罗宾)
 
-西式西化 滑稽搞笑 城市[猎人](http://www.le.com/ptv/vplay/1099588.html)
+西式西化 滑稽搞笑 [城市](https://movie.douban.com/subject/1295064/)[猎人](http://www.le.com/ptv/vplay/1099588.html)
 
 
 
